@@ -9,9 +9,6 @@ Email: [avijithalderavi999@gmail.com]
 
 LinkedIn: [https://www.linkedin.com/in/avijit-halder-4631211a1/]
 
-GitHub: [https://github.com/avijitaj999]
-
-
  Pronouns: He/Him.
 Fun fact: I enjoy bike riding and love a good game of badminton in my free time!
 .
